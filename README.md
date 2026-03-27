@@ -1,1 +1,1 @@
-I like fighting games
+I like fighting games and math
